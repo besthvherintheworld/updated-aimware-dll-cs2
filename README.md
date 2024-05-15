@@ -1,5 +1,5 @@
-DOWNLOAD: https://www.mediafire.com/file/ozolulbmydz3zd0/aimware.rar/file
-PASSWORD: aw_cracked
+## DOWNLOAD: https://www.mediafire.com/file/ozolulbmydz3zd0/aimware.rar/file
+## PASSWORD: aw_cracked
 
 ## AIMWARE.NET
 ## AIMWARE RECODE. This AIMWARE destroying HVH CS2
